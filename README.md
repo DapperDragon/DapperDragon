@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+🔭 I’m currently working on various games and music as well as fixing and reuploading various things here from over the years
+🌱 I’m currently learning Unreal Engine 5
+
+Come see my other works and follow me here: https://linktr.ee/garyhughes
